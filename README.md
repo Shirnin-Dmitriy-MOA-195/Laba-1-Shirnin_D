@@ -1,1 +1,0 @@
-# Laba-1-Shirnin_D
